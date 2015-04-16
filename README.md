@@ -14,3 +14,4 @@
 * Hoodies! Size large.
   - http://shirtjs.com/product/npm-tools-hoodie-black/?attribute_pa_size=large
 * Mortar and pestle (Norwegian: Morter)
+* A good red wine (Valpolicella is my current favourite)
